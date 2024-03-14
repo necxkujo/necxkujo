@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Kqntin (@necxkujo)
+- 👀 I’m interested in Game-Development
+- 🌱 I’m currently learning C#
+- 📫 You can reach me trough a DM on Instagra: Kqntin
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: There's no fun fact lol
